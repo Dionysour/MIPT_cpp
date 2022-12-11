@@ -1,0 +1,1 @@
+Первый ок:https://contest.yandex.ru/contest/31182/run-report/65759286/
